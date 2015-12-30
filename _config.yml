@@ -1,0 +1,8 @@
+excerpt_separator: ""
+pygments: true
+markdown: kramdown
+url: http://smartwatches.github.io
+title: smartwatches
+tagline: Smart Watches, Android Watches and Google Watches
+description: My awesome new site
+paginate: 10

@@ -1,0 +1,6 @@
+---
+published: true
+title: It's Cool
+layout: post
+---
+It's very cool place to write. I like it.

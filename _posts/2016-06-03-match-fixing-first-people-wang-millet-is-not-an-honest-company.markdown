@@ -1,0 +1,6 @@
+---
+published: true
+title: Match-fixing first people Wang: millet is not an honest company
+layout: post
+---
+On September 2, morning news, was hailed as a national \"fraud first\" in recent days Wang Hai bursts Tweet criticized millet plagiarism and false propaganda, and call friends on the conduct of the proceedings. [Product Manager do you know less](http://designercase.devhub.com/blog/2668882-product-manager-do-you-know-less/)　　Wang said that millet was not an honest company, this year ten consumer rights cases by the Supreme Court in millet. Late last year, the second-instance court of millet company consumer fraud intent, judgment min returned to millet company both mobile power, min 500 millet company guarantees compensation, return the min price 108 Yuan. [Product Manager do you know less](http://designercase.devhub.com/blog/2668882-product-manager-do-you-know-less/)　　In addition, Wang also publishes a number of microblogging accused millet plagiarism, and dig up the past record of repeatedly fined for false advertising.　　Wang said such false propaganda event, fooled consumers can request a pay back three, litigation or delegate team, but the team will receive compensation of 30% as legal fees.

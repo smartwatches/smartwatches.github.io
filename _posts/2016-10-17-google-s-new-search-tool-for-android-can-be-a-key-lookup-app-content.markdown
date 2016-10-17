@@ -1,0 +1,6 @@
+---
+published: true
+title: Google\'s new search tool for Android can be a key lookup app content
+layout: post
+---
+![Alt Google\'s new search tool for Android can be a key lookup app content](https://c1.staticflickr.com/9/8555/30339594146_827d1a1ae8.jpg)According to foreign media reports, Google announced Android Smartphone launched the search function \"In Apps\", this feature makes it easy for users to find the hidden content within the Mobile Apps. [VR Box Virtual Reality glasses](http://designercase2.blogspot.com/2016/08/white-paper-on-his-headphones-2013-by.html)[![Alt VR box goggles](http://www.wearkits.com/wp-content/uploads/2016/03/vrbox_side.jpg)](http://www.wearkits.com/)According to reports, this feature via Gmail, YouTube and Spotify for analysis, when users need to find specific content such as songs, friends, or notes, there\'s no need to open a specific app you can get, but directly through the search tool to find. Google also plans to add more in the future a third party application support In Apps, like Facebook Messenger, LinkedIn, Evernote, Glide, and Google Keep Todoist etc.Google also said some phone models also will have access to special In Apps home screen shortcuts, such as planned on September 5 announced the launch of the LG V20. [VR box goggles](http://www.wearkits.com/)
